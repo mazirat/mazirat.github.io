@@ -1,0 +1,1 @@
+# mazirat.github.io
